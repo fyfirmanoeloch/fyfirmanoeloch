@@ -1,4 +1,4 @@
-### Hi there 👋
+###  No success in life merely happens. e 👋
 
 <!--
 **fyfirmanoeloch/fyfirmanoeloch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
